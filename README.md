@@ -1,2 +1,2 @@
 # ODEK-CO-N
-Kripto Para Köykent Projesi
+Kripto Para  Tatil Köyü Projesi
